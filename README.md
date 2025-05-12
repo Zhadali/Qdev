@@ -60,6 +60,6 @@ More Information about Cookies
 You can learn more about cookies: What Are Cookies?.
 
 Contact Us
-If you have any questions about this Cookies Policy, You can contact us: 6582147900
+If you have any questions about this Cookies Policy, You can contact us:
 
 By visiting this page on our website: https://www.privacypolicies.com/live/4400bc4e-c4f1-4c85-bf09-eaf763b8c44b
